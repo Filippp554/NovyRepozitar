@@ -1,1 +1,1 @@
-# NovyRepozitar
+# skola
